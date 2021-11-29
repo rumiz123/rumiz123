@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rumiz123
-- 👀 I’m interested in playing minecraft bedwar and hacking
+- 👀 I’m interested in playing minecraft bedwars and hacking
 - 🌱 I’m currently learning hacking
 - 💞️ I’m looking to collaborate on byob
 - 📫 How to reach me nrumiz@icloud.com
